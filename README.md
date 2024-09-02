@@ -9,3 +9,6 @@ My name is Stephanie.
  ## HOW TO CONTACT ME! 📫
 
 - you can't.
+
+
+![](https://media1.tenor.com/m/BHPD9hkJSsoAAAAC/ginniemeow-studio-ghibli.gif)
