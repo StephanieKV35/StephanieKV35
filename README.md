@@ -11,4 +11,4 @@ My name is Stephanie.
 - you can't.
 
 
-![](https://tenor.com/pt-BR/view/nana-osaki-gif-22813614)
+![](https://tenor.com/bHS1G.gif)
